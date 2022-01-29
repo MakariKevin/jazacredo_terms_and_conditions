@@ -1,1 +1,0 @@
-# jazacredo_terms_and_conditions
